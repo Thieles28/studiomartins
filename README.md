@@ -1,2 +1,2 @@
-# studiomartins
+# Studio Martins
 Salão de beleza
